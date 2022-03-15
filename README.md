@@ -1,1 +1,2 @@
-# rsschool-cv
+https://veronicavoevodina.github.io/rsschool-cv/
+
